@@ -32,33 +32,13 @@ https://vimeo.com/911518220
 https://www.youtube.com/@little_edge
 <br>
 <h2>Discord</h2>
-https://discord.gg/eaFa4ahUyV
-<h4>Join our Discord and Message in #get-recoil-software channel</h4>
+https://discord.gg/sgwjcnAPrb
+
+<h4>Join our Discord and Message in #get-color-aim channel</h4>
 
 
 
-https://github.com/user-attachments/assets/047e7c29-5081-4cd2-b400-15b6fe55400e
 
-
-https://github.com/user-attachments/assets/11cab687-1e54-4062-8dfc-e307d425b697
-
-
-https://github.com/user-attachments/assets/316afcff-fbc5-454b-80c1-9080d3a381bc
-
-
-https://github.com/user-attachments/assets/045b666a-3a15-4c6f-a245-4822880dae7f
-
-
-https://github.com/user-attachments/assets/1e66214f-d92c-4340-ac0c-956a8c8747d2
-
-
-https://github.com/user-attachments/assets/5f57b6f4-b388-4a25-8b0f-a118aa7b7ad4
-
-
-https://github.com/user-attachments/assets/533c0e75-09fd-4282-b307-0f3f4a78c1e0
-
-
-https://github.com/user-attachments/assets/324d0484-1db2-4ae7-a59f-160280f23aed
 
 
 
